@@ -65,6 +65,13 @@
 
 </table>
 
+本人可代充Telegram会员：有需要可以[itgoyo@gmail.com](mailto:itgoyo@mail.com)
+
+| 时长 | 费用 | 
+| ----- | ----- | 
+| 3个月 | ¥109 / 16U| 
+| 6个月 | ¥149 / 22U| 
+| 6个月 | ¥249 / 36U| 
 
 ### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
 
