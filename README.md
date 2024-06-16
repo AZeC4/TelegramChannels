@@ -47,11 +47,11 @@
       <a href="https://t.me/sobot1024">搜搜20万人群</a>
     </td>
     <td align="center">
-      <a href="https://t.me/jisou200000">
-        <img src="https://i.imgur.com/4yErWDj.png" width="345px;" alt="2"/>
+      <a href="https://t.me/soupian20w">
+        <img src="https://i.imgur.com/SVox0Se.png" width="345px;" alt="2"/>
       </a>
       <br />
-      <a href="https://t.me/jisou200000">极搜20万人群</a>
+      <a href="https://t.me/soupian20w">搜片神器</a>
     </td>
 
   <td align="center">
@@ -81,6 +81,7 @@
 *   Telegram 🔥最强搜索机器人JiSou🤖:[https://t.me/jisou](https://t.me/jisou?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_7202424896)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
+*   Telegram 🔥搜片神器🎥:[https://t.me/soupian20w](https://t.me/soupian20w)
 *   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
 *   Telegram 🔥20万中文搜索群:[https://t.me/sousou200000](https://t.me/sousou200000)
 *   Telegram 🔥20万人搜搜群:[https://t.me/sobot1024](https://t.me/sobot1024)
