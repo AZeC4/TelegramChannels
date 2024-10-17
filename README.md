@@ -28,17 +28,14 @@
 
 ### 10000+Telegram群组、频道、机器人导航页面：[https://telegramchannels.github.io](https://telegramchannels.github.io/)
 
-### Telegram空投
-
-空投地址:[https://t.me/dogshouse_bot](https://t.me/dogshouse_bot/join?startapp=MAYhBrmaSaeH32s9jOXfgA)
-
-空投数量根据账号活跃度和年份决定，场外价格0.3U/1个！我一下子撸了5123个，你们呢？
-
-<img src="https://i.imgur.com/7G6cVWc.png" width="250">
-
 
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
+*   Telegram 修女搬运频道:[https://t.me/xiunvbanyun](https://t.me/xiunvbanyun)【💰自动搬运别的频道视频和内容，涨粉神器💰】
+*   🔞性欲至上❤️：[https://t.me/+zsmHkWJeSXIzODJl](https://t.me/+zsmHkWJeSXIzODJl)
+*   🔞推特|女菩萨❤️：[https://t.me/+1iPoKtB1IYkzNWU1](https://t.me/+1iPoKtB1IYkzNWU1)
+*   🔞眼镜反差婊❤️：[https://t.me/+kvrG5fud-_5lZDc1](https://t.me/+kvrG5fud-_5lZDc1)
+*   🔞不良少女❤️：[https://t.me/+55GiZrZbg09jMGUx](https://t.me/+55GiZrZbg09jMGUx)
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
 *   Telegram 💰供需发布5U💰[https://t.me/gxfb5u](https://t.me/gxfb5u)
@@ -50,14 +47,14 @@
 *   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)
 *   Telegram 🔥华夏索引🤖:[https://huaxia123_bot](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP)
 *   Telegram 🔥神马搜索🤖:[https://smss](https://t.me/smss?start=spread_7202424896)
-*   Telegram ❤️每日大赛❤️:[https://t.me/+PvIic5ACYV03Y2Rl](https://t.me/+PvIic5ACYV03Y2Rl)
 *   Telegram 🥷暗网搜索🔍:[https://t.me/anwangbots](https://t.me/anwangbots)
 *   Telegram 🔥搜片神器🎥:[https://t.me/soupianccav](https://t.me/soupianccav)
-*   Telegram 🔥网盘资源🔥电影🔥视频:[https://t.me/sousou200000](https://t.me/sousou200000)
-*   Telegram 🔥20万人Telegram中文社群:[https://t.me/tgcnchat](https://t.me/tgcnchat)
-*   Telegram 🔥20万人搜搜群:[https://t.me/sobot1024](https://t.me/sobot1024)
-*   Telegram 🔥20万人极搜群:[https://t.me/jisou200000](https://t.me/jisou200000)
-*   Telegram 🔥20万人华夏搜索群:[https://t.me/huaxia20w](https://t.me/huaxia20w)
+*   Telegram 🤖转发小助手🤖:[https://t.me/tgzfxzsbot](https://t.me/tgzfxzsbot)【破解私密频道无法保存转发下载等功能，涨粉神器】
+*   Telegram 🔞色色搜索吧🔥:[https://t.me/sesesousuoba](https://t.me/sesesousuoba)
+*   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesou20w](https://t.me/sesou20w)
+*   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
+*   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
+*   Telegram 🔞反差资源搜索🔥:[https://t.me/resource4](https://t.me/resource4)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
@@ -67,11 +64,6 @@
 *   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesouccav](https://t.me/sssoubot)
 *   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
-*   🔞推特|OnlyFans|女菩萨❤️:[https://t.me/xnvpux](https://t.me/xnvpux)
-*   🎉约炮大赛🎉️:[https://t.me/+PvIic5ACYV03Y2Rl](https://t.me/+PvIic5ACYV03Y2Rl)
-*   约炮地图🔍:[https://t.me/+5mnw2i8nqjIyOTNl](https://t.me/+5mnw2i8nqjIyOTNl)
-*   炮友🌼分享榜:[https://t.me/+Kt9f9FjPl3oyYTE1](https://t.me/+Kt9f9FjPl3oyYTE1)
-*   站街探店🌆大赛:[https://t.me/+_1dO3JEx0wFkNmYx](https://t.me/+_1dO3JEx0wFkNmYx)
 
 ### 机器人搭建 [搭建联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
 
