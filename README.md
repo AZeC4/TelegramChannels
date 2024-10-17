@@ -65,19 +65,19 @@
 *   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
 
-### 机器人搭建 [搭建联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
 
-- 自动上传脚本：50U(源码+搭建)
+自动上传脚本：50U(源码+搭建)，效果：[@dysyg](https://t.me/dysyg)
 
-- 破解频道/群组不允许转发内容：100U(源码+搭建)
+破解频道/群组不允许转发内容：50U(源码+搭建)，效果：[@pdgbbot](https://t.me/pdgbbot)
 
-- 自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：200U(源码+搭建)
+修女频道搬运：[@banyunpindao](https://t.me/banyunpindao)【搬运整个频道10U，监听别的频道同步到自己频道10U/一年，自行联系账号】
 
-### 出搜索群[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+自动转发频道机器人(自动搬运别人频道内容到自己频道)：100U(源码+搭建)
 
-- 报价：日收益*80（100%活人真人）
+自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)，效果：[@diyichigua](https://t.me/diyichigua)
 
-### 电报真人粉: 1000人/4000元[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+彩虹群发、强拉、炒群破解版：30U（链接: https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw ）
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
